@@ -1,5 +1,5 @@
 ### Hi there 👋
-I am @bhanu-sai-achari, i work as a Software Engineer !
+I'm @bhanu-sai-achari, i work as a Software Engineer !
 
 
 ## 🌐 My Social Accounts
